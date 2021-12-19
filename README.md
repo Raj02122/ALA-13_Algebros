@@ -56,4 +56,5 @@ For more clear images click the below link
 https://drive.google.com/drive/folders/1O2hcIQ2t7UlBA2WlPpZxHiMu-Znvetc5?usp=sharing
 
 Link to youtube video:
-uploading soon...
+https://youtu.be/L8Qrztl3sJg
+
